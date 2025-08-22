@@ -5,6 +5,6 @@ thats because the file size exceeds 10MB which is what github allows for preview
 
 3.Email me at k214688@nu.edu.pk for any help.
 
-If my notes ever helped you **please** check out my page **www.ishmaps.com** and give it a follow on instagram . 
+-----------If my notes ever helped you **please** check out my page **www.ishmaps.com** and give it a follow on instagram . ---------------
 
 I turn peoples relationship into one of a kind journey map.
